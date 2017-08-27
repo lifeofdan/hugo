@@ -15,4 +15,4 @@ The problems come with how Github hosts their static pages. If you want a static
 
 There was also an issue of [themes](https://themes.gohugo.io/). I performed the same incantation over the themes directory, pointing a submodule to the themes folder what houses the clone of the git repo that holds the theme I liked. Very, very, cool. 
 
-As cool as this is, it took me most of a morning to figure all of this out. I had never worked with submodules before. I didn't know they were even a thing. None of the Hugo documentation suggests doing anything even remotely similar to this procedure. 
+As cool as this is, it took me most of a morning to figure all of this out. I had never worked with submodules before. I didn't know they were even a thing. None of the Hugo documentation suggests doing anything even remotely similar to this procedure. I also have yet to see if Visual Studio Code will commit to both my main repo and my submodules. We will see.
