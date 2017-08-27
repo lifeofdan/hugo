@@ -1,6 +1,7 @@
 ---
 title: "AMD, Linux, Thoughts on Distros"
 date: 2017-04-24
+tags: ["gaming"]
 --- 
 ![Linux Gaming Problems](https://itsfoss.com/wp-content/uploads/2016/09/Linux-Gaming-Problems.jpg)
 

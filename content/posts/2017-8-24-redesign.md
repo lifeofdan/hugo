@@ -1,6 +1,7 @@
 ---
 title: "Redesign"
 date: 2017-08-24
+tags: ["web design"]
 ---
 ![Ruby Gems](/assets/img/wrench.jpg)
 

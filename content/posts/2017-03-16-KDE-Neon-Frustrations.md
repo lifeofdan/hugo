@@ -1,6 +1,7 @@
 ---
 title: "KDE Neon Frustrations..."
 date: 2017-03-16
+tags: ["linux"]
 --- 
 
 ![Desktop Image](/blog/img/Screenshot_20170316_124842.png)

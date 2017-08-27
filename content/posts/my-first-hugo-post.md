@@ -2,7 +2,7 @@
 title: "My First Hugo Post"
 date: 2017-08-25T15:52:58+10:00
 draft: true
-tags: ["hugo", "blog", "firstpost"]
+tags: ["hugo", "blog", "first post"]
 ---
 ![HUGO](http://www.w3.org/2000/svg)
 
