@@ -2,6 +2,7 @@
 title: "Matthew23 WoeToYou Part3"
 date: 2017-08-31T11:04:51+10:00
 draft: false
+tags: ["sermons"]
 ---
 ![Scribes & Pharisees](https://upload.wikimedia.org/wikipedia/commons/c/c1/Brooklyn_Museum_-_Woe_unto_You%2C_Scribes_and_Pharisees_%28Malheur_%C3%A0_vous%2C_scribes_et_pharisiens%29_-_James_Tissot.jpg)
 

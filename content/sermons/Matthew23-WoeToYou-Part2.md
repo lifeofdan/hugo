@@ -1,6 +1,7 @@
 ---
-title: Matthew 23 Woe To You Part 2
-date: 2017-7-14
+title: "Matthew 23 Woe To You Part 2"
+date: 2017-07-14
+tags: ["sermons"]
 ---
 ![Scribes & Pharisees](https://upload.wikimedia.org/wikipedia/commons/c/c1/Brooklyn_Museum_-_Woe_unto_You%2C_Scribes_and_Pharisees_%28Malheur_%C3%A0_vous%2C_scribes_et_pharisiens%29_-_James_Tissot.jpg)
 
