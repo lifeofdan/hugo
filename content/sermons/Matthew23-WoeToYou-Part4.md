@@ -31,6 +31,15 @@ Before we begin though, let's pray.
 
 
 ## Clean The Inside
+![Sign saying "Just because it looks clean on the outside doesn't mean it's clean on the inside."](https://usresponserestoration.files.wordpress.com/2012/11/anacostia-river-fish-study-clean-outside-not-inside-sign.jpg)
+
+In a D.C. Community near Anacostia River, people are eating and sharing fish from a contaminated river. 
+
+> One of the most notable chemical pollutants in the river is polychlorinated biphenyls (PCBs), which have immune, reproductive, endocrine, and neurological effects, and may cause cancer and affect children’s cognitive development. This and other chemicals build up in the river bottom, where they make their way up the food chain and become stored in the tissues of fish, posing a health threat if people consume them. [Link to original article.](https://usresponserestoration.wordpress.com/2012/11/19/study-reveals-d-c-community-near-anacostia-river-are-eating-and-sharing-contaminated-fish/)
+
+Now the problem in this case is multi-fold. People see the fish, they look good to eat, and so they eat them. However, there are signs up that say that just because it looks clean, doesn't mean it is. These signs warn people of the dangers, and yet people do it anyway. Now the reason in this case is this river runs through a very poor area and people are more interested in having something to keep them from being hungry today than they are of the long term effects later on.
+
+These Scribes and Pharisees are much like these fish. They look good and clean, but taking into yourself the way that they live will cause deadly long term effects. 
 
 ### The Cup
 
