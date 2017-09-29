@@ -74,4 +74,4 @@ In Jewish society dead bodies desecrated the body of a person. If someone touche
 
 I think we can think of this in practical ways in our own lives. There are things that we can do, touch, feel, that make us unclean. One thing that we can do with our bodies that makes us unclean is sexual immorality. In 1 Corinthians there are many stories about uncleanness in the community because of sexual immorality. There was one case where one man was sleeping with his father's wife. The Corinthians are advised the remove that person from the body of believers because by his very association with the body of Christ he was making all of them unclean. We learned in our last lesson on these chapters that we are the Temple of God. Together as a group we are the Body of Christ. This unclean person is a tumor that needs to be removed, lest the whole body fall to the corruption. 
 
-These scribes and Pharisees are unwilling to cleanse themselves, and thus they needed to be removed. 
+These scribes and Pharisees are unwilling to cleanse themselves, and thus they needed to be removed.
