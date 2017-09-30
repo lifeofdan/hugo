@@ -1,5 +1,5 @@
 ---
-title: "Matthew23 WoeToYou Part3"
+title: "Matthew23 WoeToYou Part 3"
 date: 2017-08-31T11:04:51+10:00
 draft: false
 tags: ["sermons"]
