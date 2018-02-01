@@ -1,5 +1,8 @@
 ---
 title: Not What We Expect (What We Need)
+date: 2017-02-01
+draft: false
+tags: ["communion"]
 ---
 Revelation is an interesting book. Just making that statement probably fills most of you with worry. You are thinking "Oh dear, what is he going to say. What thing is he going to talk about that probably makes no sense whatsoever." None the less, it is an interesting book, that is filled with hope for those who believe. 
 

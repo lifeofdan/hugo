@@ -1,8 +1,8 @@
 ---
 title: Let Me Be Overtaken
-date: 01-02-2017
+date: 2017-02-01
 draft: false
-tags: [communion]
+tags: ["communion"]
 ---
 Recently I have begun to listen to the Psalms as I am driving around. I find most of them to be comforting or encouraging. The language is so grand. For example:
 

@@ -1,5 +1,8 @@
 ---
 title: 1 John
+date: 2017-02-28
+draft: false
+tags: ["communion"]
 ---
 # 1 John
 
