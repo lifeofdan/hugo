@@ -60,7 +60,7 @@ pygmentCodeFences = true
  [[menu.main]]
     parent = "christianity"
     name = "Communion Meditations"
-    url = "communion/"
+    url = "communion-meditations/"
     weight = 2
 
  [[menu.main]]
