@@ -1,5 +1,5 @@
 ---
-title: "Hebrews 11:18-29 - A Kingdom That Cannot Be Shaken"
+title: "Hebrews 12:18-29 - A Kingdom That Cannot Be Shaken"
 date: 2018-02-04
 tags: ["sermons"]
 draft: false
