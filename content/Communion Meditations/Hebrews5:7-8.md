@@ -1,7 +1,7 @@
 ---
 title: He Was Heard
 date: 2018-02-13
-draft: true
+draft: false
 tags: ["communion"]
 ---
 
