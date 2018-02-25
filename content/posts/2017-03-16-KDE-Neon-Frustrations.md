@@ -4,7 +4,7 @@ date: 2017-03-16
 tags: ["linux"]
 --- 
 
-![Desktop Image](/blog/img/Screenshot_20170316_124842.png)
+![Desktop Image](/img/Screenshot_20170316_124842.png)
 
 It has been a **month** since my last post. I seem to be churning out one of these a month, and that is okay with me. I normally stop doing this after a couple of days. I really like being able to keep track of the work I am doing and being able to access it remotely from a variety of devices. I don't want to make this site something that has ways to comment or anything like that. It is personal reflective work. If someone stumbles across it, I am okay with them reading it, but I am mainly putting up unfinished ideas that I will polish over time.
 
@@ -17,11 +17,11 @@ Another thing that aggravates me is the lack of ability for easy customization o
 
 **The Dot...**
 
-![kde circle button](/blog/img/Screenshot_20170316_114808.png)
+![kde circle button](/img/Screenshot_20170316_114808.png)
 
 **The Hamburger...**
 
-![kde button hamburger](/blog/img/Screenshot_20170316_115005.png)
+![kde button hamburger](/img/Screenshot_20170316_115005.png)
 
 
 I know this is minor, but one adds functionality and the other is a useless mouseover button that doesn't actually do **_anything_**.
