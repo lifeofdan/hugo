@@ -1,7 +1,7 @@
 ---
 title: The Son of God
 date: 2018-02-28
-draft: true
+draft: false
 tags: ["communion"]
 ---
 ![Jesus' Face Statue](/img/jesus-1109958_640.jpg)
