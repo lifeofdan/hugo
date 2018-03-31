@@ -29,7 +29,7 @@ Because we cannot save ourselves, we need atonement. Atonement cannot be made wi
 
 Animals are used as sacrifices throughout the Old Testament. In Leviticus we can read about sacrifices for everything. How to do it, what animal, why to do it, when to do it, etc. etc. on and on. 
 
-Hebrews 10 shows us but why we offered sacrifices, as well as how Christ fits into this sacrificial system. 
+Hebrews 10 shows us why we offered sacrifices, as well as how Christ fits into this sacrificial system. 
 
 >**Hebrews 10:1–4**
 
