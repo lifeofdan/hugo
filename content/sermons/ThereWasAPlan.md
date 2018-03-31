@@ -16,9 +16,6 @@ But your iniquities have separated you from your God; your sins have hidden his 
 
 Our sins have separated us. We cannot remove that barrier ourselves.
 
->**2 Corinthians 5:21**
-God made him who had no sin to be sin for us, so that in him we might become the righteousness of God. (NIV)
-
 >**Luke 18:18–27**
 
 >_The Rich Ruler_
@@ -30,7 +27,7 @@ Because we cannot save ourselves, we need atonement. Atonement cannot be made wi
 ## Sacrificial Lamb
 ![Slain Lamb](/img/sheep-2672665.png)
 
-Animals are used as sacrifices throughout the Old Testament. In Leviticus we can read about sacrifices for everything. How to do it, what animal, why to do it, etc. etc. on and on. 
+Animals are used as sacrifices throughout the Old Testament. In Leviticus we can read about sacrifices for everything. How to do it, what animal, why to do it, when to do it, etc. etc. on and on. 
 
 Hebrews 10 shows us but why we offered sacrifices, as well as how Christ fits into this sacrificial system. 
 
