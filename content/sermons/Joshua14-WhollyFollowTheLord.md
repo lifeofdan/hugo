@@ -37,4 +37,6 @@ Forty-five years. That is a long time to wait to realise a promise. Sometimes I 
 
 >"I am this day eighty-five years old. [11] I am still as strong today as I was in the day that Moses sent me; my strength now is as my strength was then," **Joshua 14:10b-11a**
 
+At 85 he says that he is still as strong as at 45! While this may be some bluster, I believe that Caleb surely was a fit and healthy man to be, "ready for war", as he said. This was an 85 year old man who was ready to carry out the will of God to take over this country. This was land that was still inhabited. There would me more than a little bit of opposition to the conquering of this land, but God gave Caleb the strength that was needed.
+
 ## Wholly Follow the Lord, and You Will Inherit
