@@ -21,6 +21,7 @@ In many ways, we as people like to segregate our time, our money, our relationsh
 
 ## Wholly Follow the Lord, Even When Others Do Not
 ![Man, alone](/img/portrait-3052641_1920.jpg)
+
 The first thing that I think that we can see and learn from these verses is that we need to _wholly follow the Lord, even when others do not_. In verse 8 of chapter 14 we are reminded of the story of the 12 men who went to spy on Canaan. I don't know how many of you know that song "12 men went to spy on Canaan, 10 were bad and 2 were good". That one is a favorite for my boys. But, if you remember the story, 12 men are sent in to spy, and 10 of them said, "No, there are huge people in that land, they are too scary, we can't do it, we can't take the land." But there were two that objected to this claim. Those two men were Joshua and Caleb. Joshua is now the leader of the Israelites, but Caleb is speaking for the clan of Judah here and Caleb reminds Joshua that he was there and he also wholly followed the "Lord his(my) God" in this instance, even though all others around him "melted". I like that word "melted" it really makes you think of how weak they were, they just melted away. However, it was because Caleb "wholly followed the Lord" that this land was actually promised to him by Moses. 
 
 Have you ever been alone in following God? It isn't easy.
