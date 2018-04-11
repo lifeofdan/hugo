@@ -26,5 +26,14 @@ The first thing that I think that we can see and learn from these verses is that
 Have you ever been alone in following God? It isn't easy.
 
 ## Wholly Follow the Lord, He Will Give You Strength
+When we wholly follow the Lord, sometimes we will have to do it alone. However, He will with us and give us strength. 
+
+>**_Joshua 14:10-11_**
+
+>[10] And now, behold, the LORD has kept me alive, just as he said, these forty-five years since the time that the LORD spoke this word to Moses, while Israel walked in the wilderness. And now, behold, I am this day eighty-five years old. [11] I am still as strong today as I was in the day that Moses sent me; my strength now is as my strength was then, for war and for going and coming.
+
+Forty-five years. That is a long time to wait to realise a promise. Sometimes I tell Cody that I will do something later in the same day and he will find it hard to wait that long. Here we see that Caleb waits 45 years to realise the promise of God. We see many people in the Bible who wait a long time to realise the promises of God. We see the example of Abraham and how long he waited for the promised birth of Isaac. We see Israel waiting on the Messiah for hundreds of years. We personally probably know people who have waited their entire lives to see the Lord's second coming and who have died waiting. I don't think any of us have that much patience built into us. That in itself, must be divine. However, I think that it is amazing to see that after 45 years that Caleb can say:
+
+>"I am this day eighty-five years old. [11] I am still as strong today as I was in the day that Moses sent me; my strength now is as my strength was then," **Joshua 14:10b-11a**
 
 ## Wholly Follow the Lord, and You Will Inherit
