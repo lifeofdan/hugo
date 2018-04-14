@@ -30,6 +30,18 @@ Have you ever been alone in following God? It isn't always easy.
 
 If we follow God, we will face adversity. We might do it alone. The world around us is "melting" before the objections of "tolerance" and "political correctness" and "you can be, say, do, anything and everything that you want". We will come into opposition with people because of our beliefs and we need to be like Caleb who wholly followed the Lord, even when others did not.
 
+When I look at the world around me, I think of Jeremiah. Jeremiah had to be a prophet to a time in Irael's history when they did not listen to *anything* the Lord told them. They were wicked and idolatrous and they were so evil that they were about to be taken captive as punishment for their wicked ways. Jeremiah knew what it was like to be alone in following the Lord. 
+
+>**_Jeremiah 26:1–8_**
+
+>**Jeremiah Threatened with Death**
+
+>[1] In the beginning of the reign of Jehoiakim the son of Josiah, king of Judah, this word came from the LORD: [2] “Thus says the LORD: Stand in the court of the LORD's house, and speak to all the cities of Judah that come to worship in the house of the LORD all the words that I command you to speak to them; do not hold back a word. [3] It may be they will listen, and every one turn from his evil way, that I may relent of the disaster that I intend to do to them because of their evil deeds. [4] You shall say to them, ‘Thus says the LORD: If you will not listen to me, to walk in my law that I have set before you, [5] and to listen to the words of my servants the prophets whom I send to you urgently, though you have not listened, [6] then I will make this house like Shiloh, and I will make this city a curse for all the nations of the earth.’”
+
+>[7] The priests and the prophets and all the people heard Jeremiah speaking these words in the house of the LORD. [8] And when Jeremiah had finished speaking all that the LORD had commanded him to speak to all the people, then the priests and the prophets and all the people laid hold of him, saying, “You shall die! (ESV)
+
+Now, I have had people fall asleep or dislike things that I have said, but no one has ever laid hands on me and told me that they were going to kill me. That is following God even when others *really* do not.
+
 ## Wholly Follow the Lord, He Will Give You Strength
 When we wholly follow the Lord, sometimes we will have to do it alone. However, He will with us and give us strength. 
 
