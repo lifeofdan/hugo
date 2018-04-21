@@ -2,7 +2,7 @@
 title: "Joshua 14:6-14 - Wholly Follow the Lord"
 date: 2018-04-10
 tags: ["sermons"]
-draft: true
+draft: false
 ---
 # Wholly Follow the Lord
 ![Man Praying](/img/leaf-2562765_1920.jpg)
